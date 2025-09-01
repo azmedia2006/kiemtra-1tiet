@@ -1,2 +1,1 @@
-# kiemtra-1tiet
-kien it
+# kiemtra-1tiet cong nghe . net 
